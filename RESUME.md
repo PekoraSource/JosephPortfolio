@@ -1,4 +1,11 @@
-**# Joseph Day Resume**
+# **Joseph Day Resume**
 
-**## Education History**
-Un
+## **Education History**
+Mcintosh Highschool
+
+## **Employment History**
+Mcintosh Highschool Student
+Valorant Account Seller
+Day Trader
+
+## **Hobbies**
