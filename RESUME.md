@@ -12,3 +12,7 @@
 - Playing Valorant, Minecraft and Terraria
 - Coding cheats for valorant
 - Working Out
+
+## **Typing** ##
+
+-Learned J,F,Space, U, R, K, D, E, I Keys
