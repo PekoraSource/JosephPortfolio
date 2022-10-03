@@ -15,4 +15,4 @@
 
 ## **Typing** ##
 
--Learned J,F,Space, U, R, K, D, E, I Keys
+- Learned J,F,Space, U, R, K, D, E, I Keys
